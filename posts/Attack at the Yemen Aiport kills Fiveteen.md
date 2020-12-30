@@ -13,8 +13,7 @@ Mohammed al-Roubid, deputy head of Aden’s health office, told the Associated P
 The Yemeni Ministry of Interior accuses the Houthi rebels of being behind the Aden airport explosions.
 The cause of the explosions has not been identified yet.
 Clear CCTV footage shows that there were two distant explosions separated by 30 seconds
-What exists as speculations:
-
+What exists as speculation
 a)The explosion(s) were caused by a mortar attack.
 
 Realistic? 5/10
